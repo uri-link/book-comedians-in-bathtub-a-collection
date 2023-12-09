@@ -13,7 +13,7 @@ It appears, in this matrix, that there is ONE male getting-older-comedian who do
 
 Whats another name for an aging comedian? NotFunny! NotIronicEither!
 
-# White Rules Only:
+# White Rules Only: (These rules were made up by some white girl)
 
 1. No Nazi Jokes.
 
